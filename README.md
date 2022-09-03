@@ -1,7 +1,4 @@
 ### Hi there 👋
-
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on Ace Design
 - 🌱 I’m currently learning nodejs
 - 👯 I’m looking to collaborate on any open-source project

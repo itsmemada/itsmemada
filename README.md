@@ -5,6 +5,5 @@
 - 🤔 I’m looking for help with starting my it career
 - 💬 Ask me about anything really
 - 📫 How to reach me: https://www.instagram.com/katarzisss/ https://discord.gg/pwQNVJxa
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: I like synths
 
